@@ -11,5 +11,7 @@ lista:
 
 ## Come vestirsi
 ### Quali scarpe
+Scarpe a punta ovviamente....
 ### Scegliere la cravatta
+Rigorosamente con Topolino stamapto...
 
